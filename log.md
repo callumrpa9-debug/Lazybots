@@ -1,0 +1,1 @@
+6 Nov 2026 ~19:26 UK — Clipper 7pm: scheduled MW4 #5 TT 20:15 (Zernio 6aee29b4d468f0e051c27594), HTG Day10 YT Short 20:45 (6aee29bdf3ace3fe69114d3c Commander), HTG Day10 TT 21:15 (6aee29c7f3ace3fe69114d73 evil-hands + CML With Every Step). Cane's still paused. Trailer cuts 4/5. Next: HTG Day11, MW4 #6, HV Day5.
